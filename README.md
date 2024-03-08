@@ -15,5 +15,13 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 #Raul Marquez Sanchez
- 
+  # INFORMACION SOBRE MI
+Soy una persona apasionada por el aprendizaje y la creatividad. Me encanta explorar nuevas ideas y enfrentar desafíos con entusiasmo. Siempre estoy buscando oportunidades para crecer tanto personal como profesionalmente. 
+
+
+
+
+
+
+
 
